@@ -1,1 +1,0 @@
-# girutori.github.io
